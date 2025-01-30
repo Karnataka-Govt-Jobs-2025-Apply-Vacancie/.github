@@ -11,7 +11,7 @@ Detailed information and official notification are provided below:
 - **Application End Date:** February 7, 2025
 - **Work Location:** Karnataka
 
-[Read More: Neyveli Lignite Corporation (NLC) India Limited Notification 2025](#)
+[Read More: Neyveli Lignite Corporation (NLC) India Limited Notification 2025](https://karnatakacareers.net/neyveli-lignite-corporation-nlc-india-limited-notification-2025/)
 
 ## Selection Procedure:
 - Candidates should reside within the village of the vacant/new Anganwadi center.
